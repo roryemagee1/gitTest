@@ -1,3 +1,4 @@
 La-de-da?
 Lo-de-do.
-Luh-di-duh!
+Luh-de-duh!
+Hi-de-ho!!
